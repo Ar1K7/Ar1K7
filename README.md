@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning: nothing really...
 - 💞️ I’m looking to collaborate on: nothing :/
 - 📫 How to reach me: arik090711@outlookcom
-- 😄 Pronouns: He/they
 - ⚡ Fun fact: I love cats and dogs
 
 <!---
