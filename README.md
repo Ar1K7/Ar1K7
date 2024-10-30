@@ -2,7 +2,7 @@
 - 👀 I’m interested in: web design
 - 🌱 I’m currently learning: nothing really...
 - 💞️ I’m looking to collaborate on: nothing :/
-- 📫 How to reach me: arik090711@outlookcom
+- 📫 How to reach me: arik090711@outlook.com
 - ⚡ Fun fact: I love cats and dogs
 
 <!---
